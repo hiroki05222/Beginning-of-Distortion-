@@ -1,3 +1,3 @@
-# Beginning-of-Distortion-
-NF
-イベント
+#Beginning-of-Distortion-
+National Focus
+Event
